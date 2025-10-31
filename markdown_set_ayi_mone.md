@@ -1,1 +1,0 @@
-# Aliya sanam set ayi 
